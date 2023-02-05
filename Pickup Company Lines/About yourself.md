@@ -1,0 +1,1 @@
+I'm a fresher just about to complete my Masters in Computer Application and hoping to get an internship at your company. I'm a passionate developer and want to work with a growing company like yours. To hone and acquire new skills working with the company.
